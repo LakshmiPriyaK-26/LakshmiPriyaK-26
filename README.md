@@ -1,4 +1,4 @@
-                                            Hi👋🏼, I'm Lakshmi Priya 
+                                            Hi👋🏼, I'm Lakshmi Priya K 
 
 # 💫 About Me:
 🌱 I'm in the Bachelor of Computer Applications program.
