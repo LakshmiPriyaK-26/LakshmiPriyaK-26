@@ -1,5 +1,3 @@
-
-                                    
 Hi👋🏼, I'm Lakshmi Priya K 
 
 # 💫 About Me:
