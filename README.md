@@ -1,3 +1,5 @@
+                                                                                     Hi👋🏼, I'm Lakshmi Priya 
+
 # 💫 About Me:
 🌱 I'm in the Bachelor of Computer Applications program.
 
